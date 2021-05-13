@@ -10,7 +10,7 @@ You'll find that many of these works are from Taimur Rahman, a Pakistani Marxist
 - Taimur Rahman - [Pol Econ of Pakistan](https://www.youtube.com/playlist?list=PLOV7ykEqGK1ZKUmhdAktOBq0f9gtP12vi): An excellent playlist regarding the economy of Pakistan.
 - Luna Oi  & Taimur Rahman - [Interview with Pakistan Communist Party General Secretary Taimur Rahman](https://youtu.be/TGXjptBzUHQ)
 
-Honestly, his entire YouTube channel has a multitude of these videos that are all great, so I'll be putting a few particulary good ones on here. Putting all of them on here would make the list too long. They are primarily aimed at a Pakistani audience who are unfamiliar with Marxism and socialism (with the exception of the first work below). Note that all of these are in Urdu, however some videos on his channel are in English or have closed captions.
+Honestly, his entire [YouTube channel]() has a multitude of these videos that are all great, so I'll be putting a few particulary good ones on here. Putting all of them on here would make the list too long. They are primarily aimed at a Pakistani audience who are unfamiliar with Marxism and socialism (with the exception of the first work below). Note that all of these are in Urdu, however some videos on his channel are in English or have closed captions.
 
 - Taimur Rahman - [What is Marxism? (Urdu)](https://www.youtube.com/watch?v=YPK3OM27CfE)
 - Taimur Rahman - [Difference between Socialism and Communism (Urdu)](https://www.youtube.com/watch?v=ruczJ4y9VB4)
@@ -18,3 +18,8 @@ Honestly, his entire YouTube channel has a multitude of these videos that are al
 - Taimur Rahman - [Communist Manifesto (Urdu, Ch 1)](https://www.youtube.com/watch?v=5nqfPZRxExk)
 - Taimur Rahman - [Third Wave Feminism (Urdu)](https://www.youtube.com/watch?v=sEYmp6Ao1zE)
 - Taimur Rahmann - [Socialism vs. Capitalism: Data from USSR (Urdu)](https://www.youtube.com/watch?v=JWvCX64VB8Y)
+
+## Articles
+- Taimur Rahman - [The Poverty of Pakistani Ideology](https://jacobinmag.com/2015/01/taimur-rahman-laal-interview): A Jacobin interview with Rahman about current-day class politics in Pakistan
+- Taimur Rahman - [Taimur Rahman Political Archive](https://redpakistan.wordpress.com/): Rahman's blog
+- Student Struggle - [Class Solidarity Not Identity Politics: Talking to Taimur Rahman](https://studentstruggle.in/class-solidarity-not-identity-politics-talking-to-taimur-rahman/): An interview with Taimur Rahman by a Leftist Indian student journal of the Central Executive Committee of The Students’ Federation of India, India's largest left-wing student organization and politically aligned with the CPI.
