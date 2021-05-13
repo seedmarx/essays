@@ -17,3 +17,4 @@ Honesty his entire YouTube channel has a multitude of these videos that are all 
 - Taimur Rahman - [Dialectical Materialism & the Class Struggle (**Urdu**)](https://youtu.be/qRA4Q52zLy0)
 - Taimur Rahman - [Communist Manifesto (Urdu, Ch 1)](https://www.youtube.com/watch?v=5nqfPZRxExk)
 - Taimur Rahman - [Third Wave Feminism (Urdu)](https://www.youtube.com/watch?v=sEYmp6Ao1zE)
+- Taimur Rahmann - [Socialism vs. Capitalism: Data from USSR](https://www.youtube.com/watch?v=JWvCX64VB8Y)
