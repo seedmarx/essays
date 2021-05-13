@@ -8,7 +8,7 @@ You'll find that many of these works are from Taimur Rahman, a Pakistani Marxist
 
 ## Videos
 - Taimur Rahman - [Pol Econ of Pakistan](https://www.youtube.com/playlist?list=PLOV7ykEqGK1ZKUmhdAktOBq0f9gtP12vi): An excellent playlist regarding the economy of Pakistan.
-- Luna Oi  & Taimur Rahman - [Interview with Pakistan Communist Party General Secretary Taimur Rahman](https://youtu.be/TGXjptBzUHQ)
+- Luna Oi  & Taimur Rahman - [Interview with Pakistan Communist Party General Secretary Taimur Rahman](https://youtu.be/TGXjptBzUHQ): This one is especially great, this is perfect for learning about the Left in Pakistan and Pakistan as a whole.
 
 Honestly, his entire [YouTube channel](https://www.youtube.com/channel/UCIyAy8lIQwnj-2CGt9e-N3g) has a multitude of these videos that are all great, so I'll be putting a few particulary good ones on here. Putting all of them on here would make the list too long. They are primarily aimed at a Pakistani audience who are unfamiliar with Marxism and socialism (with the exception of the first work below). Note that all of these are in Urdu, however some videos on his channel are in English or have closed captions.
 
