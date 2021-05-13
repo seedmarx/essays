@@ -1,6 +1,6 @@
 # Pakistani Marxism
 A list of resources for Marxists and Marxist analysis of Pakistan.
-You'll find that many of these works are from Taimur Rahman, a Pakistani Marxist-Leninist who is the General Secretary of the [Mazdoor Kissan Party](http://pmkp.pk/events-2/), teacher, and head of the band Laal, who sign anti-capitalist, socialist songs.
+You'll find that many of these works are from Taimur Rahman, a Pakistani Marxist-Leninist who is the General Secretary of the [Mazdoor Kissan Party](http://pmkp.pk/events-2/), teacher, and head of the band Laal, who sing anti-capitalist, socialist songs.
 
 ## Books
 - Taimur Rahman - [*The Class Structure of Pakistan*](https://www.amazon.com/Class-Structure-Pakistan-Taimur-Rahman/dp/0199065071/) (Book)
