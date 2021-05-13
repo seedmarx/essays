@@ -4,5 +4,5 @@ Inspired by [Dessalines' essays](https://github.com/dessalines/essays).
 
 ## Reading Lists
 - [Hakim's Reading List](hakim-reading-list.md)
-- Reading to-do List
+- [Reading to-do List](reading-todo.md)
 - [Pakistani Marxism List](pakistani-marxism.md)
