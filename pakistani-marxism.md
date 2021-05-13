@@ -9,6 +9,11 @@ You'll find that many of these works are from Taimur Rahman, a Pakistani Marxist
 ## Videos
 - Taimur Rahman - [Pol Econ of Pakistan](https://www.youtube.com/playlist?list=PLOV7ykEqGK1ZKUmhdAktOBq0f9gtP12vi): An excellent playlist regarding the economy of Pakistan.
 - Luna Oi  & Taimur Rahman - [Interview with Pakistan Communist Party General Secretary Taimur Rahman](https://youtu.be/TGXjptBzUHQ)
-- Taimur Rahman - [Imran Khan & PTI: A Marxist Critique](https://youtu.be/oLR8rsO0i9A)
+
+Honesty his entire YouTube channel has a multitude of these videos that are all great, so I'll be putting a few particulary good ones on here. Putting all of them on here would make the list too long. They are primarily aimed at a Pakistani audience who are unfamiliar with Marxism and socialism (with the exception of the first work below). Note that some of these are in Urdu.
+
 - Taimur Rahman - [What is Marxism?](https://www.youtube.com/watch?v=YPK3OM27CfE)
-- 
+- Taimur Rahman - [Difference between Socialism and Communism](https://www.youtube.com/watch?v=ruczJ4y9VB4)
+- Taimur Rahman - [Dialectical Materialism & the Class Struggle (**Urdu**)](https://youtu.be/qRA4Q52zLy0)
+- Taimur Rahman - [Communist Manifesto (Urdu, Ch 1)](https://www.youtube.com/watch?v=5nqfPZRxExk)
+- Taimur Rahman - [Third Wave Feminism (Urdu)](https://www.youtube.com/watch?v=sEYmp6Ao1zE)
