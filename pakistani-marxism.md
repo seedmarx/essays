@@ -12,7 +12,7 @@ You'll find that many of these works are from Taimur Rahman, a Pakistani Marxist
 - Taimur Rahman - [Pol Econ of Pakistan](https://www.youtube.com/playlist?list=PLOV7ykEqGK1ZKUmhdAktOBq0f9gtP12vi): An excellent playlist regarding the economy of Pakistan.
 
 
-Honestly, his entire [YouTube channel](https://www.youtube.com/channel/UCIyAy8lIQwnj-2CGt9e-N3g) has a multitude of these videos that are all great, so I'll be putting a few particulary good ones on here. Putting all of them on here would make the list too long. They are primarily aimed at a Pakistani audience who are unfamiliar with Marxism and socialism (with the exception of the first work below). Note that all of these are in Urdu, however some videos on his channel are in English or have closed captions.
+Honestly, his entire [YouTube channel](https://www.youtube.com/channel/UCIyAy8lIQwnj-2CGt9e-N3g) has a multitude of these videos that are all great, so I'll be putting a few particulary good ones on here. Putting all of them on here would make the list too long. They are primarily aimed at a Pakistani audience who are unfamiliar with Marxism and socialism. Note that all of these are in Urdu, however some videos on his channel are in English or have closed captions.
 
 - Taimur Rahman - [What is Marxism? (Urdu)](https://www.youtube.com/watch?v=YPK3OM27CfE)
 - Taimur Rahman - [Difference between Socialism and Communism (Urdu)](https://www.youtube.com/watch?v=ruczJ4y9VB4)
