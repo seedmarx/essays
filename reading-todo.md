@@ -10,3 +10,4 @@ This is more of a personal list of books to read, but consider them as recommend
 - Fisher - [Capitalist Realism](https://www.johnhuntpublishing.com/zer0-books/our-books/capitalist-realism)
 - Carr - [The Bolshevik Revolution](https://www.amazon.com/Bolshevik-Revolution-1917-1923-History-Soviet/dp/0393301958)
 - Parenti - [The Assassination Of Julius Caesar: A People's History Of Ancient Rome](https://www.amazon.com/Assassination-Julius-Caesar-Peoples-History-dp-1565849426/dp/1565849426/ref=mt_other?_encoding=UTF8&me=&qid=)
+- Amin - [China 2013](https://monthlyreview.org/2013/03/01/china-2013/)
